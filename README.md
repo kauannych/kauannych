@@ -1,2 +1,2 @@
-- 👋 oiie eu sou a nyy
-- 🌱 estou estudando no alura
+- 🐻 oiie eu sou a nyy
+- 🖼️ estou estudando no alura
