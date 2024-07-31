@@ -1,6 +1,3 @@
 - 👋 Hi, I’m @kauannych
 - 👀 I’m interested in arte
 - 🌱 estudante
-- 💞️ 
-- 😄 
-- ⚡ 
