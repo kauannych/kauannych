@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @kauannych
+- 👋 oiie sou a nyy
 - 👀 I’m interested in arte
 - 🌱 estudante
