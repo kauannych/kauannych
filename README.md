@@ -1,3 +1,2 @@
-- 👋 oiie sou a nyy
-- 👀 I’m interested in arte
-- 🌱 estudante
+- 👋 oiie eu sou a nyy
+- 🌱 estou estudando no alura
